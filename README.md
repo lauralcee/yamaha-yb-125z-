@@ -1,1 +1,3 @@
-# yamaha-yb-125z-
+# yamaha yb 125z
+The Yamaha YB125Z is a fuel-efficient bike that gives you a mileage of 60 kilometers per liter. Priced at Rs 54,500 (ex-showroom), the Yamaha YBR 125 is being offered in three colors - Red, Black and Black-Red colours.
+The [yamaha yb 125z dx installment plan](https://horsepower.com.pk/best-installment-plan-for-2022-yamaha-yb125z-dx/) will climb from Rs184,000 to Rs190,000 because of the new increase, which will take effect on December 1. This is a Rs6,000 increase. The rate of the YBZ DX variant has risen by Rs7,000, to Rs198,500 to Rs205,500, representing an increase of Rs7,000.
